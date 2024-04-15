@@ -1,3 +1,4 @@
-gay twink yaoi girl boy he/him girl 
+![](https://64.media.tumblr.com/d04b5c6714304b13175d67065d3975f8/7da29a0084968815-1d/s640x960/5c89707972d9c3c6281fe3dc7e324f3171c0ff6c.gifv)
+![](https://64.media.tumblr.com/ca419827cd149abb067ae5ad44e8fff7/7da29a0084968815-50/s500x750/d6f9dc8524d43ce54b0a4b3bcaaf0505d652c885.gifv)
 
-![](https://i.pinimg.com/564x/5e/2d/9d/5e2d9d11cd613a05fd4741a063c1447b.jpg)
+![](https://i.pinimg.com/564x/12/f5/23/12f5234911fa6d096e5fb1beabf9a391.jpg)
